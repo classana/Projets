@@ -8,7 +8,7 @@
 
 **─**
 
-Lassana , Hicham, Jessy ,Mamadou 
+Lassana 
 
 # **Sommaire** 
 
